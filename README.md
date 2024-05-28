@@ -1,4 +1,4 @@
-## eae malandragem
+## sou um gostoso =)
 
 <!--
 **big-thurr/big-thurr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
